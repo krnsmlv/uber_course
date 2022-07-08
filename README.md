@@ -1,1 +1,1 @@
-# krnsmlv.github.io
+# krnsmlv.github.io/uber_course
